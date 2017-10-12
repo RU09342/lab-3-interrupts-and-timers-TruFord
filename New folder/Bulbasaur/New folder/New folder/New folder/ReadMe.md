@@ -1,0 +1,1 @@
+![alt text](https://github.com/RU09342/lab-2-blinking-leds-TruFord/blob/master/New%20folder/Bulbasaur/New%20folder/New%20folder/New%20folder/0c07daed9ac70b5de66df5c616b6738c--rick-and-morty-quotes-nail-decals.jpg)
